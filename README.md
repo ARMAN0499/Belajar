@@ -1,0 +1,2 @@
+# Belajar
+miliki growth mindset
